@@ -1,6 +1,6 @@
 ## Privacy Policy
 
-[TODO-studio-name] built the Supper Booper game as a Free game. This SERVICE is provided by [TODO-studio-name] at no cost and is intended for use as is.
+Focal Point built the Supper Booper game as a Free game. This SERVICE is provided by Focal Point at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service.
 
