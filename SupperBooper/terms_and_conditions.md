@@ -20,4 +20,4 @@ We may update our Terms and Conditions from time to time. Thus, you are advised 
 
 **Contact Us**
 
-If you have any questions or suggestions about our Terms and Conditions, do not hesitate to contact us at [TODO-email].
+If you have any questions or suggestions about our Terms and Conditions, do not hesitate to contact us at [focalpointvgstudio@gmail.com](mailto:focalpointvgstudio@gmail.com).
